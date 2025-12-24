@@ -19,6 +19,6 @@ https://coursera.org/share/6d9873d8a3e3971ae57d59e4ef5b5dcb
 
 https://coursera.org/share/96aa975483374f104576a685b1459fc9
 
-[ ](https://coursera.org/share/6f424fc3a5a2eda957bc0f12b6670ed3)
+https://coursera.org/share/6f424fc3a5a2eda957bc0f12b6670ed3)
 
 https://coursera.org/share/c6c9856acfc790507fe84b1520fdd397
